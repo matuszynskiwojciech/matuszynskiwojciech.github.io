@@ -1,1 +1,1 @@
-to jest moja strona
+Znośnego dnia! =)
